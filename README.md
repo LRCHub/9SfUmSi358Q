@@ -1,4 +1,4 @@
-# Vaundy – 走れSAKAMOTO
+# Vaundy – 走れSAKAMOTO – RUN SAKAMOTO RUN – Opening theme to SAKAMOTO DAYS
 
 > **歌詞登録ステータス：同期歌詞あり**
 
